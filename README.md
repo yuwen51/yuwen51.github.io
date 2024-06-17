@@ -1,2 +1,2 @@
-# About Me
-### I'm studying Tourism at Hokkaido University. 
+## About me
+ I am studying Tourism at Hokkaido University. I am come from 
