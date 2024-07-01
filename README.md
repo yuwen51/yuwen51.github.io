@@ -1,4 +1,4 @@
-## MY Hometown
+## My Hometown
  ### Hainan
  
 ## My Growing experience
