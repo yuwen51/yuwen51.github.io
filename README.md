@@ -4,9 +4,9 @@
  I also like to watch funny TV shows in my leisure time to release stress from class and homework.  
 
 ## My Growing experience
- 海口市龙华小学  
- 海口市第一中学  
- 海南华侨中学观澜湖学校  
- 西安外国语大学  
+ KONGHUAXIAOXUE  
+ HAIKIUSHIDIYIZHONGXUE  
+ HAINANHUAQIAOZHONGXUE GUANLANHUXUEXIOA  
+ XIAN WAIGUOYUDAXUE  
  北海道大学  
 
