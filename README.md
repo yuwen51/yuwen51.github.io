@@ -1,4 +1,7 @@
 ## About me
+#### **Hi, I'm Wenyu Wang（王雯钰）**  
+welcome to my website!  
+
 I am pursuing a Master's degree in Tourism Studies at Hokkaido University.   
 **My research keywords: Rural Revitalization, Creative Tourism, Female In-migrant Entrepreneurs.**  
 
